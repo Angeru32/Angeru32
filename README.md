@@ -1,4 +1,4 @@
-I'm dissocupied and have failed school, but i have worked until now in a men's clothing store until now.
+I'm dissocupied and have failed school, but i have worked in a men's clothing store until now.
 I've never stopped studyng Algebra and I've sacrificed the ideal concept of my dream for the harsh strenght to do it,
 and even if i need more years to be only good at it will persist, until my eyes work.
 
